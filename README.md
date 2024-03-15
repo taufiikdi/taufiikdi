@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me i dont know
 - 😄 Pronouns: I am hero
-- ⚡ Fun fact: get yout freedom
+- ⚡ Fun fact: get your freedom
 
 <!---
 taufiikdi/taufiikdi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
